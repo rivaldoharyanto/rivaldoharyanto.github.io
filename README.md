@@ -1,1 +1,0 @@
-# rivaldoharyanto.github.io
